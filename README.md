@@ -1,0 +1,1 @@
+to jest pliczek ktory ma mowic czego sie naucze ale nie wiem czy sie naucze wiec nie napisze
